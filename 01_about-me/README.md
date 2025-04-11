@@ -8,7 +8,7 @@ outshines any light from the village.
 The people here are not afraid of the creatures of the land, the darkness of night, or the crisp
 chill of the wintry wind. No, quite the opposite – they've learned there's peaceful serenity in
 these things; and if you learn to befriend them as these people have, you wouldn't give them up for
-all the wordly comforts that other "more advanced" civilizations have to offer.
+all the worldly comforts that other "more advanced" civilizations have to offer.
 
 This gentle village is your home. It has been ever since you were born. And though you've traveled
 to many other lands and visited many great cities with fancy machines and advanced scientific

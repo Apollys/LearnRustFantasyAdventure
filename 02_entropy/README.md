@@ -4,7 +4,7 @@
 
 Surprised that a majestic talking lioness would be looking for something that you have, you ask, "What could that be?"
 
-She replies, "Well, I'm in need of [entropy](https://en.wikipedia.org/wiki/Entropy). It's something I can't create for myself. But I have a feeling you would be a great soure of the entropy I need."
+She replies, "Well, I'm in need of [entropy](https://en.wikipedia.org/wiki/Entropy). It's something I can't create for myself. But I have a feeling you would be a great source of the entropy I need."
 
 You're not quite sure what she's talking about. "If I have any of this entropy of which you speak, I certainly don't know where it is, much less how I could give it to you," you say uncertainly.
 
